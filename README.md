@@ -35,4 +35,4 @@ D2dTLQp2w485kQDwDvngfDo2GV1r7DdeGgYWxjAaDkPv
 ### Contact
 - Telegram: https://t.me/DevCutup
 - Whatsapp: https://wa.me/13137423660
-- Twitter: https://x.com/januscutup
+- Twitter: https://x.com/devcutup
